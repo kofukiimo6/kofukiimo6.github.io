@@ -1,0 +1,1 @@
+# kofukiimo6.github.io
